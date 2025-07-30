@@ -2,7 +2,7 @@
 
 **Nama**: Sofia Merlina Yusuf  
 **NIM**: 24110310082  
-**Prodi**: Bisnis Digital 2A  
+**Prodi**: Bisnis Digital 2B
 
 ---
 
